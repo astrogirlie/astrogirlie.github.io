@@ -1,1 +1,0 @@
-# astrogirlie.github.io
